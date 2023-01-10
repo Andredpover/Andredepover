@@ -11,7 +11,7 @@
 He/Him
 
 ### 🌱 About me
-A techie at heart who fell into recruitment and now can't look back. I'm passionate about helping build innovative platforms/applications and helping to connect people with thenm. Outside of this I enjpoy gaming 🎮, travel 🗺, diving 🤿, Golf 🏌️‍♂️ 
+A techie at heart who fell into recruitment and now can't look back. I'm passionate about helping build innovative platforms/applications and helping to connect people with them. Outside of this I enjpoy gaming 🎮 travel 🗺 diving 🤿 Golf 🏌️‍♂️ 
 
 ### ⚡Fun fact
 I was a divemaster for 9 months in Thailand
